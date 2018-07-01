@@ -10,34 +10,34 @@ Holy crap. Not sure how I've not been one of the 130+ Million views on this vid 
 
 When the violence pops, it does just that on screen to the second build up that breaks to an instrumental part, not the "chorus" whis was awesome. 
 
-[https://www.youtube.com/watch?v=7sxFyu_U2go](Squirrel Nut Zippers - Ghost of Stephen Foster)
+[Squirrel Nut Zippers - Ghost of Stephen Foster](https://www.youtube.com/watch?v=7sxFyu_U2go)
 ---
 
 Love SNZ back in the day, but somehow never saw this vid! I know the song, but never thought to look it up and must've just missed it when it "aired on TV" as things did back then. I literally laughed (more chuckled) when the doors opened and the cartoon as well as the music snapped to life.
 
 This embodied a lot of the style of "pre-psychedelic, yet totally psychedelic" animation that doesn't over use squash & stretch, but embraces absurdity. I love it. Watched a few times in a row. 
 
-[https://www.youtube.com/watch?v=y2vzBdIejVY](Freak Kitchen - Freak of the Week)
+[Freak Kitchen - Freak of the Week](https://www.youtube.com/watch?v=y2vzBdIejVY)
 ---
 
 Gotta say "I'm the freak of theweek. Bigger than any WikiLeak" had me rolling. The character of this vid kept the feel very different than I was expecting and I was stunned at the moving camera shots with seemles 3D integration and Disney-esque facial expressions (the drummers eyes, especially). Gave it a sense of humore I think I'd have missed in the song itself - especially when thigns went haywire about 1/2 the way thru.
 
 Really dug the guitar solo in molten metal. 
 
-[https://www.youtube.com/watch?v=cYBCrYPRFUU](The Real Tuesday Weld - Me & Mr. Wolf)
+[The Real Tuesday Weld - Me & Mr. Wolf](https://www.youtube.com/watch?v=cYBCrYPRFUU)
 ---
 
 This did a great job of dipping deeper into the psychedelia that I love experiencing while keeping a traditional feel. I loved he rapid fire transitions. I lost count of how many scenes there were in this vid. I also love that the color palette was read, black, white, and "blue/greys". Gave it a bit more of a contrast than the full-n black/white/grey/red palette that is used a ton.
 
 Got me hooked on the visual narrative and it was no surpruse when things turned away from the aesthetic & into a Bonnie & Clyde story.
 
-[https://www.youtube.com/watch?v=9RHFFeQ2tu4](Fever The Ghost - SOURCE)
+[Fever The Ghost - SOURCE](https://www.youtube.com/watch?v=9RHFFeQ2tu4)
 
 We chatted about this a bit when u sent the vids, but I love the monsters and the over the topness the eyes/mouths blasting open with light. For which you maybe get a few frames of anticipation, but it feels pretty explosive. 
 
 The synth dance party at 2:40 or so is magic. It can be hard to get "fun" into media, but I felt it with this one. 
 
-[https://www.youtube.com/watch?v=lX44CAz-JhU](SIAMÉS - "The Wolf")
+[SIAMÉS - The Wolf](https://www.youtube.com/watch?v=lX44CAz-JhU)
 ---
 
 Holy crap. I think this is my favorite. Everything about this one grabbed me. The style and perspectives were super kinetic. Not sure how else to frame it, but probably best explained by the fact that I wanted way more of this when it ended.
